@@ -1,4 +1,4 @@
-# 
+# Enhance Logic Pro for macOS with Logic Pro for macOS custom Template: compressor & green-screen-removal, the #1 template. Includes compressor and green-screen-removal for a
 
 
 
